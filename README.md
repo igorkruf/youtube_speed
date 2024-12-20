@@ -1,9 +1,11 @@
 # youtube_speed
-
-1614967913@etlgr.com
-igor-kruf@list.ru
+https://dtf.ru/u/1825586-fingmaster/2928175-ipv6-ili-protivostoyanie-zanizheniyu-skorosti-youtube 
 
 
+инструкция
+
+
+ 
 
 
 
